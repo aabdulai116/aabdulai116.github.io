@@ -3,7 +3,7 @@ I am Amos Abdulai and I am a rising sophmore at Livingstone College majoring in 
 
 My favorite univeristy website is [Stanford University](https://www.stanford.edu/)
 
-[LinkedIn](www.linkedin.com/in/amos-abdulai-4a5975193)
+My LinkedIn [LinkedIn](www.linkedin.com/in/amos-abdulai-4a5975193)
 
 - Curriculum Vitae
 - Linkedin
